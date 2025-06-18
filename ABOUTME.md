@@ -1,5 +1,3 @@
- Hi, I’m @bmeesss
-Im looking for somebody that knows how to create a os , and you can contact me on discord: bmeesss
+Hey im Mason Coemaet im 13 years old now and im trying to learn code html etc so i making small projects and yeah 
 
-
-Thank you for reading
+i live in the netherlands and i hope that i can make a big company or something
